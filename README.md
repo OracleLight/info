@@ -26,8 +26,9 @@ Very interaction friendly , I won't maul you until after we've become friends ![
 
 I am taken ! ![0080531c](https://github.com/user-attachments/assets/8e0f5070-96db-46d6-b979-93944aaa2851)
 
-I will (I mean *will*) talk about R (my boyfriend) a lot , if you let me. 
+I will (I mean *will*) talk about R (my boyfriend) a lot , if you let me. ![Untitled545_20250905054003](https://github.com/user-attachments/assets/9fed54cb-1fe1-4ba3-a2d7-712400d4943d)
 
+If it annoys you, say something ! =)
 
 ![fc0464af](https://github.com/user-attachments/assets/8f84650c-9aef-4308-818d-f53f5c727d9c)
 
@@ -37,7 +38,7 @@ Most often are:
 
 Link ![9efc8b3c](https://github.com/user-attachments/assets/7f1ebd3c-0f34-4b6e-94bf-21242ad93fe8)
 
-Vanilla ![9eb8efc6](https://github.com/user-attachments/assets/fe91ef1a-af43-4692-835d-7cc6e7435a3d)
+Vanilla ![75de6354](https://github.com/user-attachments/assets/14fd064f-5e40-4efd-885d-6eb398af6edc)
 
 Olive ![dcdee636](https://github.com/user-attachments/assets/3445b766-4d1b-4584-896d-3d84b7daf84b)
 
