@@ -50,4 +50,6 @@ LOLbit ![49144169](https://github.com/user-attachments/assets/abb3163f-bea5-43e3
 
 Six ![ecb205d3](https://github.com/user-attachments/assets/6c691edc-0f26-4770-8a9d-2bdbf03e2733)
 
+I prefer not to interact with kin doubles -- sorry !
+
 ![Untitled544_20250905040326](https://github.com/user-attachments/assets/ee79ef10-bee2-4811-8a1e-1993e2552ab1)
