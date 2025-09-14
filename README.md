@@ -24,11 +24,15 @@ Very interaction friendly , I won't maul you until after we've become friends ![
 
 ![737df2ab_original](https://github.com/user-attachments/assets/5b8a7a36-5816-4d08-a961-63a32bb7db73)
 
-I am taken ! ![0080531c](https://github.com/user-attachments/assets/8e0f5070-96db-46d6-b979-93944aaa2851)
+I am taken & poly! ![0080531c](https://github.com/user-attachments/assets/8e0f5070-96db-46d6-b979-93944aaa2851)
 
 I will (I mean *will*) talk about R (my boyfriend) a lot , if you let me. ![Untitled545_20250905054003](https://github.com/user-attachments/assets/9fed54cb-1fe1-4ba3-a2d7-712400d4943d)
 
 If it annoys you, say something ! =)
+
+![72787bef](https://github.com/user-attachments/assets/2a8a4947-3764-4288-a8d2-2bdc928e16f0)
+
+You might catch me in the dsmp area also. I am NOT wss, but am very fond of argbur as that is R (my boyfriend)s source. 
 
 ![fc0464af](https://github.com/user-attachments/assets/8f84650c-9aef-4308-818d-f53f5c727d9c)
 
