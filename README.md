@@ -56,4 +56,6 @@ Six ![ecb205d3](https://github.com/user-attachments/assets/6c691edc-0f26-4770-8a
 
 I prefer not to interact with kin doubles -- sorry !
 
+PLEASE go to my rentry kinlist and check specific boundaries for specific kinshifts.
+
 ![Untitled544_20250905040326](https://github.com/user-attachments/assets/ee79ef10-bee2-4811-8a1e-1993e2552ab1)
