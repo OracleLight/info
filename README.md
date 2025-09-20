@@ -32,8 +32,6 @@ If it annoys you, say something ! =)
 
 ![72787bef](https://github.com/user-attachments/assets/2a8a4947-3764-4288-a8d2-2bdc928e16f0)
 
-You might catch me in the dsmp area also. I am NOT wss, but am very fond of argbur as that is R (my boyfriend)s source. 
-
 ![fc0464af](https://github.com/user-attachments/assets/8f84650c-9aef-4308-818d-f53f5c727d9c)
 
 I kinshift frequently !
